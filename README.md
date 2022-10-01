@@ -30,3 +30,4 @@ Mi 11 Lite (courbet)
 
 active tool
 https://t.me/+2_dcxubGaoViNGE8
+![Screenshot_10-01-2022-215252](https://user-images.githubusercontent.com/74476847/193424252-104b388a-f26e-4083-86ed-8e940311158f.jpg)
